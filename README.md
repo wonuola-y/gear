@@ -1,3 +1,3 @@
 
-![Gear](https://www.figma.com/file/2SjgqPtwBr2ak5RQv8nFAW/100-Daily-UI-Challenge-(Community)?type=design&node-id=266-6425&t=4x2pla5px3CiBKjA-4)  
+![Gear](![image](https://github.com/wonuola-y/gear/assets/57100593/d83dfe6f-3a45-4b07-92a8-aad74d342027))  
 
